@@ -1,0 +1,7 @@
+- Music
+- Novels
+- Travelling
+- Coding
+- Exploring new stuffs
+- Networking
+- Meeting New People
