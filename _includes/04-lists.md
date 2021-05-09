@@ -1,1 +1,7 @@
-Replace this with a list of your favorite things.
+- Music
+- Novels
+- Travelling
+- Coding
+- Exploring new stuffs
+- Networking
+- Meeting New People
